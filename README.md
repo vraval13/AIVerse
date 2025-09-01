@@ -1,1 +1,1 @@
-# **🚀 AIVerse
+# 🚀 AIVerse
